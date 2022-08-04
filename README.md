@@ -1,8 +1,8 @@
-Name- Tanishq Harsh
-Age-??
-School/Collage- school
-currently learning- web development
-fav language- python
+Name- Tanishq Harsh, 
+Age-??, 
+School/Collage- school, 
+currently learning- web development, 
+fav language- python, 
 
 
 
