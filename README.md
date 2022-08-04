@@ -1,15 +1,20 @@
-BY THE ODER OF PEAKY BLINDERS-
+Name- Tanishq Harsh
+Age-??
+School/Collage- school
+currently learning- web development
+fav language- python
 
-
-NAME- Lemme ask
-Age- Leave it
-
-
-hobbies- Programing, Editing, Sketching
+BYE---------------- 
+    --------------   
+     ------------     
+      ----------       
+       --------         
+        ------         
+         ----    
+          --
+    
 
 Contact- noobgameryt3198@gmail.com, tanishqharsh375@gmail.com
 
 
 
-REST YOU DECIDE
-BYE
